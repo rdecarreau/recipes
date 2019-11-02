@@ -2,13 +2,13 @@
 
 ## Ingredients
 
-Onions, thinly sliced
-Apple Brandy
-Dry Bread
-Broth
-Thyme
-Bay Leaves
-Emmental, Gruyere, Provolone, etc
+1. Onions, thinly sliced
+1. Apple Brandy
+1. Dry Bread
+1. Broth
+1. Thyme
+1. Bay Leaves
+1. Emmental, Gruyere, Provolone, etc
 
 ## Directions
 
